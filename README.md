@@ -2,4 +2,4 @@
 Pedro Diaz #1 
 Married
 Father of two (Boy & Girl)
-Shi-Tzu named Osita 
+Owner of a little Shi-Tzu named Osita 
